@@ -6,12 +6,12 @@
 
 Alguns fatos sobre mim:
 
-- 🔭 Anelyse  
-- 🌱 16y 
-- 👯 Amo livros
-- 🤔 Sempre assistindo algo
+- 👩🏽 Anelyse  
+- 🥳 16y 
+- 📚 Amo livros
+- 📺 Sempre assistindo algo
 - 💬 Grande fã da Taylor Swift 
-- 📫 Estudante do ensino médio 
-- 😄 conhecendo o mundo
-- ⚡ arte <3
+- 👩🏽‍🎓 Estudante do ensino médio 
+- 🌎 conhecendo o mundo
+- 🎨 apaixonada por arte
 
